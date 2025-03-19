@@ -1,2 +1,2 @@
 # morphle_labs_task
-![Alt Text]("C:\Users\Sunke Durgaprasad\Desktop\Screenshot 2025-03-19 121035.png")
+![Alt Text](https://imgur.com/a/7yURetu")
